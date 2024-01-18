@@ -113,3 +113,18 @@ Instructions:
 7. Drop tablespoon-sized balls of dough onto ungreased baking sheets.
 8. Bake for 8 to 10 minutes or until golden brown.
 9. Cool on wire racks.
+
+## Desserts 2
+### Peanut Butter Mousse
+
+Ingredients:
+- 2 ounces Neufchâtel cheese, softened
+- 1/4 cup peanut butter
+- 1/4 cup confectioners' sugar
+- 1/2 cup heavy whipping cream
+
+Instructions:
+
+1. Beat Neufchâtel cheese, confectioners' sugar, and peanut butter together in a bowl until smooth and well combined. Set aside.
+2. Place heavy whipping cream in another bowl and whip until medium peaks form. Add peanut butter mixture and whip just until combined.
+3. Divide evenly into 2 serving glasses. Serve at once, or cover and refrigerate.
